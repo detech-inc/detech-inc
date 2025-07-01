@@ -1,3 +1,5 @@
-# Looking for the Official Account?
+# 🎉 You Found Us!
 
-Please visit [DeTech Official](https://github.com/detech-official) for official repositories and updates.
+But the official action's happening here 👉 [DeTech Official](https://github.com/detech-official)  
+
+Come check it out! 🚀

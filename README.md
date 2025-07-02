@@ -1,5 +1,3 @@
-# 🎉 You Found Us!
+# 🎉 You Found Me!
 
-But the official action's happening here 👉 [DeTech Official](https://github.com/detech-official)  
-
-Come check it out! 🚀
+Please check our group here 👉 [DeTech Official](https://github.com/detech-official)  
